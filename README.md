@@ -2,11 +2,15 @@
 
 Uma aeronave de pequeno porte caiu na manhã desta quinta-feira (9) em Ubatuba, no litoral norte de São Paulo. A informação foi confirmada pelo Corpo de Bombeiros.
 
-De acordo com a prefeitura de Ubatuba, o acidente foi registrado às 10h58. Defesa civil, Guarda Civil, Corpo de Bombeiros e Polícia Militar estão no local.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
 Imagens de segurança registraram o momento em que a aeronave explode. Veja o vídeo.
-
-Vídeo mostra momento da queda de avião em Ubatuba (SP) | CNN Brasil
 
 Outras imagens mostram bombeiros e policiais resgatando as vítimas no avião, que caiu na quebra das ondas. Veja.
 
